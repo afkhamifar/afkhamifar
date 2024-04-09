@@ -1,4 +1,4 @@
-Mohammd Hossein Afkhami far, FullStack Developer from Sayna System Spadan Co
+Mohammad Hossein Afkhami far, FullStack Developer from Sayna System Spadan Co
 
 - 👋 Hi, I’m @afkhamifar
 - 👀 I’m interested in ...
